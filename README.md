@@ -7,3 +7,6 @@
 
 
 Loid Forger irl and Kira Yoshikage of #MoeTwt
+
+
+Everything is. A Wip. andis Being Remade. Collect My Colorpicking Incidents
