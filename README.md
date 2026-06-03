@@ -10,3 +10,6 @@ Loid⠀Forger⠀irl⠀and⠀Kira⠀MOEshikage⠀of⠀MOErioh
 
 
 Everything⠀is.⠀A⠀Wip.⠀andis⠀Being⠀Remade.⠀Collect⠀My⠀Colorpicking⠀Incidents
+
+
+10:28 AM[harvey dent | arkham shadow] whispers: (never seen spy x family) i l ove loid. he killed charlie kirk he's so beautioful to me.
