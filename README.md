@@ -1,6 +1,6 @@
 
 
-[Fluffle  ✉︎  (Creds @Denguemon)]()   ⠀ㅤ⠀ㅤ [Atabook](https://loid.atabook.org)   ⠀ㅤ⠀ㅤ [Rentry](https://rentry.co/twiIight)
+[Fluffle  ✉︎  (Creds @Denguemon)](https://fluffle.cc/kirayoshikage)   ⠀ㅤ⠀ㅤ [Atabook](https://loid.atabook.org)   ⠀ㅤ⠀ㅤ [Rentry](https://rentry.co/twiIight)
 
 
    ⠀ㅤ   ⠀ㅤ⠀ㅤ ⠀   ⠀   ⠀ㅤ ⠀ㅤ ㅤ⠀ㅤ      ⠀ㅤ ⠀ㅤ ![image alt](https://github.com/Iavamotive/Iavamotive/blob/d02203a020b64f0d23a39dcb8c74e3d710976cdc/ghuserla.PNG)
