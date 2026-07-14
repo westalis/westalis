@@ -11,3 +11,8 @@ Everything⠀is.⠀A⠀Wip.⠀andis⠀Being⠀Remade.⠀Collect⠀My⠀Colorpick
 
 
 10:28 AM[harvey dent | arkham shadow] whispers: (never seen spy x family) i l ove loid. he killed charlie kirk he's so beautioful to me.
+
+
+08:18 AM[. jjba . baron , sign ata] PIGEON LOID
+08:18 AM[. jjba . baron , sign ata] next ur gonna say loid had a bad run in with a flock of birds in the manga or smth
+08:18 AM[. jjba . baron , sign ata] ITS ALWAYS SMTH WITH LOID
