@@ -14,5 +14,7 @@ Everything⠀is.⠀A⠀Wip.⠀andis⠀Being⠀Remade.⠀Collect⠀My⠀Colorpick
 
 
 08:18 AM[. jjba . baron , sign ata] PIGEON LOID
+
 08:18 AM[. jjba . baron , sign ata] next ur gonna say loid had a bad run in with a flock of birds in the manga or smth
+
 08:18 AM[. jjba . baron , sign ata] ITS ALWAYS SMTH WITH LOID
